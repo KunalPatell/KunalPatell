@@ -46,7 +46,7 @@ Here are some of the projects I'm working on:
 
 ## 📫 Connect with Me
 - LinkedIn: [linkedin.com/in/kunalpatell](https://linkedin.com/in/kunalpatell)  
-- Email: kunalpatell@example.com  
+- Email: websitekunal@gmail.com  
 
 ---
 
